@@ -15,8 +15,4 @@ Neem een fiets mee...
 
 De volgende hint verschijnt zaterdag 16 september!
 
-![Image](mata-ari.png)
-
-![Image](arie.png)
-
-![Image](mata.png)
+![Image](arie.png) ![Image](mata.png)
