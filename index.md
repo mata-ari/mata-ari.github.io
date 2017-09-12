@@ -13,4 +13,10 @@ We zeggen nog niet wat, maar elke week geven we een hint. Check dus regelmatig d
 
 Neem een fiets mee...
 
+De volgende hint verschijnt zaterdag 16 september!
+
 ![Image](mata-ari.png)
+
+![Image](arie.png)
+
+![Image](mata.png)
