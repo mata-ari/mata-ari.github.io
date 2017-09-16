@@ -21,6 +21,6 @@ De volgende hint verschijnt zaterdag 23 september!
 
 ### Extra opdracht
 
-Voor een spel vragen we je een bericht te sturen naar [Mattias](mailto:mattias@joostd.nl) met het antwoord op de vraag /Wat vond je het afgelopen jaar het leukste wat je met Mattias hebt gedaan?/
+Voor een spel vragen we je een bericht te sturen naar [Mattias](mailto:mattias@joostd.nl) met het antwoord op de vraag _Wat vond je het afgelopen jaar het leukste wat je met Mattias hebt gedaan?_
 
 ![Image](arie2.png) ![Image](mata2.png)
