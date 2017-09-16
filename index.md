@@ -21,7 +21,7 @@ De volgende hint verschijnt zaterdag 23 september!
 
 ### Extra opdracht
 
-We hebben geheime informatie van jou nodig! [Mail ons](mailto:mattias@joostd.nl) de antwoorden op de volgende vragen:
+We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.nl) de antwoorden op de volgende vragen:
 
 - _Wat heb je meegemaakt met Arie wat niet veel mensen weten?_
 - _Wat heb je meegemaakt met Mattias wat niet veel mensen weten?_
