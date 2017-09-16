@@ -26,4 +26,4 @@ We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.n
 - _Wat heb je meegemaakt met Arie wat niet veel mensen weten?_
 - _Wat heb je meegemaakt met Mattias wat niet veel mensen weten?_
 
-![Image](arie2.png) ![Image](mata2.png)
+![Image](arie2.png) ![Image](matta2.png)
