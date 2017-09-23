@@ -19,6 +19,12 @@ Neem schoenen mee die vies mogen worden!
 
 De volgende hint verschijnt zaterdag 23 september!
 
+### Hint 3
+
+Kom stipt op tijd!
+
+De volgende hint verschijnt zaterdag 30 september!
+
 ### Extra opdracht
 
 We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.nl) de antwoorden op de volgende vragen:
@@ -26,4 +32,4 @@ We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.n
 - _Wat heb je meegemaakt met Arie wat niet veel mensen weten?_
 - _Wat heb je meegemaakt met Mattias wat niet veel mensen weten?_
 
-![Image](arie2.png) ![Image](matta2.png)
+![Image](arie3.png) ![Image](matta3.png)
