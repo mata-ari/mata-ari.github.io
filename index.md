@@ -25,6 +25,12 @@ Kom stipt op tijd!
 
 De volgende hint verschijnt zaterdag 30 september!
 
+### Hint 4 (de laatste!)
+
+- Oi mates!
+- Wie draagt een baby in zijn broekzak?
+- Meenemen: fiets, handdoek, bikini of zwembroek
+
 ### Extra opdracht
 
 We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.nl) de antwoorden op de volgende vragen:
@@ -32,4 +38,6 @@ We hebben geheime informatie van jou nodig! [Mail ons](mailto:mata-arie@joostd.n
 - _Wat heb je meegemaakt met Arie wat niet veel mensen weten?_
 - _Wat heb je meegemaakt met Mattias wat niet veel mensen weten?_
 
-![Image](arie3.png) ![Image](matta3.png)
+Tot nu toe heeft alleen Joshua de opdracht uitgevoerd en heeft al bonuspunten binnen. Voor de anderen: mail je reactie nog dit weekend!
+
+![Image](IMG_2403.JPG) ![Image](IMG_2382.JPG) ![Image](IMG_2378.JPG)
